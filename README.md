@@ -3,7 +3,7 @@
 
 **DATE: 22.04.25**
 
-**NAME: *muralitharan k ,*
+**NAME: *MURALITHARAN K M ,*
 
 **ROLL NO: 212223040121**
 
